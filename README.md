@@ -993,7 +993,1137 @@ On Sat, Apr 20, 2024 at 4:28 PM tshingombe fiston <tshingombefiston@gmail.com>
 
             WEB SITE:
 
-             
+             Conversation opened. 1 unread message.
+
+Skip to content
+Using Gmail with screen readers
+ 
+8 of 5,385
+Re: Reminder: Hybrid BILT Bridging Event: Towards inclusive excellence in TVET starts in 1 day
+Inbox
+ 
+TSHINGOMBEKB TSHITADI 
+	7:49 AM (1 hour ago)
+	
+	
+to UNESCO-UNEVOC, me 
+ 
+
+
+On Mon, 22 Apr 2024, 09:13 UNESCO-UNEVOC BILT team, <no-reply@zoom.us> wrote:
+
+Hi Tshingombe tshingombe,
+This is a reminder that your webinar will begin in 1 day: 
+Hybrid BILT Bridging Event: Towards inclusive excellence in TVET
+Date & Time	Apr 23, 2024 09:00 AM Amsterdam, Berlin, Rome, Stockholm, Vienna	
+Webinar ID	873 6718 4434	
+Passcode	417531	
+Description	Featuring a hybrid LEARNING LAB on 24 April 2024!
+
+The BILT Bridging Event 'Towards inclusive excellence in TVET' provides a platform for international policy learning, knowledge exchange, innovation transfer and networking among TVET policy makers, practitioners and researchers. The event takes lessons from Europe as a starting point for interregional discussion and collaboration on future-oriented TVET systems and TVET delivery.
+
+Start time is 9 am CEST on all days. The LEARNING LAB will run from 9 to 11 am on 24 April. 	
+		
+	
+	
+Add to:   Google Calendar     Outlook Calendar(.ICS)     Yahoo Calendar 
+
+	
+Please visit
+https://unevoc.unesco.org/bilt/BILT+inclusive+excellence
+to access the event agenda and for any further information. 
+You can cancel your registration at any time.
+
+Please submit any questions to: unevoc.bilt@unesco.org 
+Thank you! 
+WAYS TO JOIN THIS WEBINAR 	
+	
+•	Join from PC, Mac, iPad, or Android
+    Join Webinar     
+
+If the button above does not work, paste this into your browser: 
+https://unesco-org.zoom.us/w/87367184434?tk=oOMSQ7hEk50wR83dNtwDc5o0aAUDWY1P2zWYdJ0bZjk.DQYAAAAUV31wMhZPbTJtdEtIZVM1Q3BhenVXNUdLT2NBAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA&pwd=bmIWpSEjugRrFbr0xSLJkFFKQ1xe9r.1 
+
+To keep this webinar secure, do not share this link publicly. 
+•	Join by SIP	
+87367184434@zoomcrc.com
+
+Webinar ID:	873 6718 4434
+	
+Passcode: 	417531
+	
+Or, join by H.323 
+H.323: 	162.255.37.11 (US West)
+162.255.36.11 (US East)
+221.122.88.195 (Mainland China)
+115.114.131.7 (India Mumbai)
+115.114.115.7 (India Hyderabad)
+213.19.144.110 (Amsterdam Netherlands)
+213.244.140.110 (Germany)
+103.122.166.55 (Australia Sydney)
+103.122.167.55 (Australia Melbourne)
+209.9.211.110 (Hong Kong SAR)
+149.137.40.110 (Singapore)
+64.211.144.160 (Brazil)
+149.137.68.253 (Mexico)
+69.174.57.160 (Canada Toronto)
+65.39.152.160 (Canada Vancouver)
+207.226.132.110 (Japan Tokyo)
+149.137.24.110 (Japan Osaka)
+Webinar ID:	873 6718 4434
+Passcode: 	417531
+	
+
+
+	
+ 	 	 
++1.888.799.9666 
+Copyright ©2024 Zoom Video Communications, Inc.
+Visit Zoom.us
+55 Almaden Blvd
+San Jose, CA 95113 
+
+	
+ 	
+
+ 	
+
+
+Conversation opened. 1 unread message. 
+
+Skip to content
+Using Gmail with screen readers
+ 
+9 of 5,385
+Re: Hybrid BILT Bridging Event: Towards inclusive excellence in TVET
+Inbox
+ 
+TSHINGOMBEKB TSHITADI 
+	 7:48 AM (1 hour ago)
+	
+	
+to UNESCO-UNEVOC, me 
+ 
+
+
+On Mon, 22 Apr 2024, 10:13 UNESCO-UNEVOC International Centre, <bonn@unesco.org> wrote:
+Dear attendees of the BILT bridging event,
+
+Due to technical issues, the event started with a delay of 30 minutes at 9:30 CEST. We are sorry that an email informing you of this change may not have reached you.
+
+Please join the event that is ongoing right now using the Zoom link that has been sent to you earlier. We will share the link to the full recording at a later time.
+
+Thank you for your understanding,
+The BILT TEAM
+
+
+UNESCO-UNEVOC International Centre for TVET
+UN Campus, Platz der Vereinten Nationen 1
+53113 Bonn, Germany
+unevoc.unesco.org
++49 228 53419-200
+ 
+ 
+ Profile
+•	
+tshitadi tshingombe
+tshingombefiston@gmail.com
+•	
+•  Active Job Applications
+•	(222) Senior Artisan Electrician - CSD 
+Pretoria, South Africa 
+•  South African Reserve Bank 222 Applied on 02/21/2024 
+•  Project Controller ‒ Cost and Schedule (three-year contract role) - CSD 
+Pretoria, South Africa 
+•  252 Applied on 02/20/2024 
+•  (217) Project Controller (Cost and Schedule) Contract - CSD 
+Pretoria, South Africa 
+•  South African Reserve Bank 217 Applied on 02/10/2024 
+•  (208) Senior Artisan: Mechanical - CSD 
+Pretoria, South Africa 
+•	South African Reserve Bank 208 Applied on 02/10/2024 
+Inactive Job Applications
+•	197 Manager Policy - CODI 
+Pretoria, South Africa 
+Status Application Unsuccessful 
+South African Reserve Bank 197 Applied on 02/10/2024 
+•	(169) Applications Technical Specialist - BSTD 
+Pretoria, South Africa 
+Status Application Unsuccessful 
+South African Reserve Bank 169 Applied on 02/10/2024 
+•	(198) Artisan: Carpenter - CSD 
+Pretoria, South Africa 
+Status Application Unsuccessful 
+South African Reserve Bank 198 Applied on 02/10/2024 
+•	(159) Graphic Designer - ExeMan 
+Pretoria, South Africa 
+Status Application Unsuccessful 
+South African Reserve Bank 159 Applied on 01/11/2024 
+•	(160) Website Officer - ExeMan 
+Pretoria, South Africa 
+Status Application Unsuccessful 
+South African Reserve Bank 160 Applied on 01/11/2024 
+tshitadi tshingombe
+tshingombefiston@gmail.com
+•	
+•  Active Job Applications
+•	(222) Senior Artisan Electrician - CSD 
+Pretoria, South Africa 
+•  South African Reserve Bank 222 Applied on 02/21/2024 
+•  Project Controller ‒ Cost and Schedule (three-year contract role) - CSD 
+Pretoria, South Africa 
+•  252 Applied on 02/20/2024 
+•  (217) Project Controller (Cost and Schedule) Contract - CSD 
+Pretoria, South Africa 
+•  South African Reserve Bank 217 Applied on 02/10/2024 
+•  (208) Senior Artisan: Mechanical - CSD 
+Pretoria, South Africa 
+•	South African Reserve Bank 208 Applied on 02/10/2024 
+Inactive Job Applications
+•	197 Manager Policy - CODI 
+Pretoria, South Africa 
+Status Application Unsuccessful 
+South African Reserve Bank 197 Applied on 02/10/2024 
+•	(169) Applications Technical Specialist - BSTD 
+Pretoria, South Africa 
+Status Application Unsuccessful 
+South African Reserve Bank 169 Applied on 02/10/2024 
+•	(198) Artisan: Carpenter - CSD 
+Pretoria, South Africa 
+Status Application Unsuccessful 
+South African Reserve Bank 198 Applied on 02/10/2024 
+•	(159) Graphic Designer - ExeMan 
+Pretoria, South Africa 
+Status Application Unsuccessful 
+South African Reserve Bank 159 Applied on 01/11/2024 
+•	(160) Website Officer - ExeMan 
+Pretoria, South Africa 
+Status Application Unsuccessful 
+South African Reserve Bank 160 Applied on 01/11/2024 
+Personal Job Assistant
+I say
+hello
+Skill says
+Hello and welcome to careers at South African Reserve Bank
+You can ask me things like "Check on my applications".
+Skill says
+Hello and welcome to careers at South African Reserve Bank
+You can ask me things like "Check on my applications".
+I say
+check my application
+Skill says
+Here is the list of your applications.
+(208) Senior Artisan: Mechanical - CSD
+Applied on 2024-02-10T12:05:31+00:00, Under Consideration 
+(198) Artisan: Carpenter - CSD
+Applied on 2024-02-10T12:10:19+00:00, Application Unsuccessful 
+(169) Applications Technical Specialist - BSTD
+Applied on 2024-02-10T12:16:56+00:00, Application Unsuccessful 
+197 Manager Policy - CODI
+Applied on 2024-02-10T12:20:22+00:00, Application Unsuccessful 
+(217) Project Controller (Cost and Schedule) Contract - CSD
+Applied on 2024-02-10T12:12:42+00:00, Vetting stage 
+(159) Graphic Designer - ExeMan
+Applied on 2024-01-11T11:53:13+00:00, Application Unsuccessful 
+(157) Campaigns and Projects Officer - ExeMan
+Applied on 2024-01-11T11:26:00+00:00, Application Unsuccessful 
+(160) Website Officer - ExeMan
+Applied on 2024-01-11T11:50:40+00:00, Application Unsuccessful 
+(99) Artisan-Electronics CT
+Applied on 2023-12-12T07:34:20+00:00, Application Unsuccessful 
+(150) Associate IT Risk Analyst
+Applied on 2024-01-11T11:35:11+00:00, Application Unsuccessful 
+I say
+198 artisan applie
+Skill says
+Here is the list of your applications.
+(208) Senior Artisan: Mechanical - CSD
+Applied on 2024-02-10T12:05:31+00:00, Under Consideration 
+(198) Artisan: Carpenter - CSD
+Applied on 2024-02-10T12:10:19+00:00, Application Unsuccessful 
+(169) Applications Technical Specialist - BSTD
+Applied on 2024-02-10T12:16:56+00:00, Application Unsuccessful 
+197 Manager Policy - CODI
+Applied on 2024-02-10T12:20:22+00:00, Application Unsuccessful 
+(217) Project Controller (Cost and Schedule) Contract - CSD
+Applied on 2024-02-10T12:12:42+00:00, Vetting stage 
+(159) Graphic Designer - ExeMan
+Applied on 2024-01-11T11:53:13+00:00, Application Unsuccessful 
+(157) Campaigns and Projects Officer - ExeMan
+Applied on 2024-01-11T11:26:00+00:00, Application Unsuccessful 
+(160) Website Officer - ExeMan
+Applied on 2024-01-11T11:50:40+00:00, Application Unsuccessful 
+(99) Artisan-Electronics CT
+Applied on 2023-12-12T07:34:20+00:00, Application Unsuccessful 
+(150) Associate IT Risk Analyst
+Applied on 2024-01-11T11:35:11+00:00, Application Unsuccessful 
+I say
+my alert
+Skill says
+Here is the list of your applications.
+(208) Senior Artisan: Mechanical - CSD
+Applied on 2024-02-10T12:05:31+00:00, Under Consideration 
+(198) Artisan: Carpenter - CSD
+Applied on 2024-02-10T12:10:19+00:00, Application Unsuccessful 
+(169) Applications Technical Specialist - BSTD
+Applied on 2024-02-10T12:16:56+00:00, Application Unsuccessful 
+197 Manager Policy - CODI
+Applied on 2024-02-10T12:20:22+00:00, Application Unsuccessful 
+(217) Project Controller (Cost and Schedule) Contract - CSD
+Applied on 2024-02-10T12:12:42+00:00, Vetting stage 
+(159) Graphic Designer - ExeMan
+Applied on 2024-01-11T11:53:13+00:00, Application Unsuccessful 
+(157) Campaigns and Projects Officer - ExeMan
+Applied on 2024-01-11T11:26:00+00:00, Application Unsuccessful 
+(160) Website Officer - ExeMan
+Applied on 2024-01-11T11:50:40+00:00, Application Unsuccessful 
+(99) Artisan-Electronics CT
+Applied on 2023-12-12T07:34:20+00:00, Application Unsuccessful 
+(150) Associate IT Risk Analyst
+Applied on 2024-01-11T11:35:11+00:00, Application Unsuccessful 
+I say
+my salary
+Skill says
+Sorry I did not get that. You can ask me things like "Search for jobs in San Francisco, CA" or "Check on my applications".
+Update on your Job application with SARB
+Inbox
+ 
+SARB Talent Acquisition 
+	Wed, Apr 17, 4:25 PM (6 days ago)
+	
+	
+to me 
+ 
+
+Dear tshitadi tshingombe,
+Thank you for your interest in SARB and (198) Artisan: Carpenter - CSD position, after reviewing your profile carefully, we regret to inform you that your profile does not meet some of the key requirements for the current requisition (198) Artisan: Carpenter - CSD - 198.
+We encourage you to keep checking our careers site for other opportunities that you qualify for.
+Regards,
+Thulani Maphasa
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+
+
+23 of 5,408
+Update on your Job application with SARB
+Inbox
+ 
+SARB Talent Acquisition 
+	10:20 AM (1 hour ago)
+	
+	
+to me 
+ 
+
+Dear tshitadi tshingombe,
+Thank you for your interest in SARB and 197 Manager Policy - CODI position, after reviewing your profile carefully, we regret to inform you that your profile does not meet some of the key requirements for the current requisition 197 Manager Policy - CODI - 197.
+We encourage you to keep checking our careers site for other opportunities that you qualify for.
+Regards,
+Makgoka Mamaregane
+23 of 5,408
+Update on your Job application with SARB
+Inbox
+ 
+SARB Talent Acquisition 
+	10:20 AM (1 hour ago)
+	
+	
+to me 
+ 
+
+Dear tshitadi tshingombe,
+Thank you for your interest in SARB and 197 Manager Policy - CODI position, after reviewing your profile carefully, we regret to inform you that your profile does not meet some of the key requirements for the current requisition 197 Manager Policy - CODI - 197.
+We encourage you to keep checking our careers site for other opportunities that you qualify for.
+Regards,
+Makgoka Mamaregane
+
+ 
+2 Attachments • Scanned by Gmail
+ 	
+
+Job Alert Expired Notification
+Inbox
+ 
+SARS Human Capital and Development <system@successfactors.eu> 
+	2:00 AM (7 hours ago)
+	
+	
+to me 
+ 
+
+	 	
+	Dear Tshingombe Tshitadi ,
+Your Engineering electrical Job Alert expired. It has been inactivated because it has been unmodified for a long period of time.
+Please log in to the career site to active it manually.
+Regards,
+SARS Talent Acquisition Team
+23 April 2024	
+
+Skip to Main Content 
+•	1 of 5 itemsHome
+•	2 of 5 itemsJob Search
+•	3 of 5 items selectedJob Management
+•	4 of 5 itemsPassword Management
+•	5 of 5 itemsMy Profile
+Welcome,Tshingombe Tshitadi 
+Sign Out
+Language
+English UK ‎(English UK)‎Collapsed. To expand press enterExpanded. To collapse press enter
+•	1 of 4 items selectedJobs Applied
+•	2 of 4 itemsSaved Searches/Alerts
+•	3 of 4 itemsSaved Jobs
+•	4 of 4 itemsSaved Applications
+Career Opportunities: Jobs Applied
+  
+Items per page:  
+   
+Showing 1-10 of 30
+   
+First Page|<<First
+  
+Previous Page<Prev
+   
+1
+ 2 3     Next>   Last>>| 
+Jobs Applied table, to focus press T in JAWS virtual PC cursor mode on. Use Control + Alt + arrow keys to navigate the table.
+Job Title  
+Actions 	Req ID 
+Date Applied 
+Status 
+Status Date 
+Next Step 	Region	Location
+Analyst: Data & Reporting 
+Select 	7504	10/12/2023 	New Application 	10/12/2023 		Region(1) 	Location(1) 
+Auditor 
+Select 	7198	11/11/2023 	We are currently reviewing all applications 	11/11/2023 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+Auditor: Compliance Audit 
+Select 	7495	22/11/2023 	We are currently reviewing all applications 	22/11/2023 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+Auditor: Compliance Audit 
+Select 	7490	17/11/2023 	Reject 	21/11/2023 	Please apply for another opportunity	Region(4) 	Location(8) 
+Auditor: Compliance Audit in Tax Verifications [x2] and Management of Focused Taxpayer Segments [x1] 
+Select 	7190	02/02/2024 	Reject 	19/02/2024 	Please apply for another opportunity	Region(1) 	Location(1) 
+Auditor: Level 3 - (Indirect Tax) 
+Select 	7285	10/11/2023 	We are currently reviewing all applications 	10/11/2023 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+Business Area Lead: High Value Debt 
+Select 	6563	10/11/2023 	We are currently reviewing all applications 	10/11/2023 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+Business Area Lead: Risk (Case Selection and Risk Profiling) 
+Select 	7423	06/02/2024 	Reject 	10/04/2024 	Please apply for another opportunity	Region(1) 	Location(1) 
+Consultant - Health and Safety 
+Select 	6798	20/01/2024 	We are currently reviewing all applications 	20/01/2024 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+Consultant: HR Business Partnering 
+Select 	7476	15/11/2023 	We are currently reviewing all applications 	15/11/2023 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+  
+Skip to Main Content 
+•	1 of 5 itemsHome
+•	2 of 5 itemsJob Search
+•	3 of 5 items selectedJob Management
+•	4 of 5 itemsPassword Management
+•	5 of 5 itemsMy Profile
+Welcome,Tshingombe Tshitadi 
+Sign Out
+Language
+English UK ‎(English UK)‎Collapsed. To expand press enterExpanded. To collapse press enter
+•	1 of 4 items selectedJobs Applied
+•	2 of 4 itemsSaved Searches/Alerts
+•	3 of 4 itemsSaved Jobs
+•	4 of 4 itemsSaved Applications
+Career Opportunities: Jobs Applied
+  
+Items per page:  
+   
+Showing 1-10 of 30
+   
+First Page|<<First
+  
+Previous Page<Prev
+   
+1
+ 2 3     Next>   Last>>| 
+Jobs Applied table, to focus press T in JAWS virtual PC cursor mode on. Use Control + Alt + arrow keys to navigate the table.
+Job Title  
+Actions 	Req ID 
+Date Applied 
+Status 
+Status Date 
+Next Step 	Region	Location
+Analyst: Data & Reporting 
+Select 	7504	10/12/2023 	New Application 	10/12/2023 		Region(1) 	Location(1) 
+Auditor 
+Select 	7198	11/11/2023 	We are currently reviewing all applications 	11/11/2023 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+Auditor: Compliance Audit 
+Select 	7495	22/11/2023 	We are currently reviewing all applications 	22/11/2023 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+Auditor: Compliance Audit 
+Select 	7490	17/11/2023 	Reject 	21/11/2023 	Please apply for another opportunity	Region(4) 	Location(8) 
+Auditor: Compliance Audit in Tax Verifications [x2] and Management of Focused Taxpayer Segments [x1] 
+Select 	7190	02/02/2024 	Reject 	19/02/2024 	Please apply for another opportunity	Region(1) 	Location(1) 
+Auditor: Level 3 - (Indirect Tax) 
+Select 	7285	10/11/2023 	We are currently reviewing all applications 	10/11/2023 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+Business Area Lead: High Value Debt 
+Select 	6563	10/11/2023 	We are currently reviewing all applications 	10/11/2023 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+Business Area Lead: Risk (Case Selection and Risk Profiling) 
+Select 	7423	06/02/2024 	Reject 	10/04/2024 	Please apply for another opportunity	Region(1) 	Location(1) 
+Consultant - Health and Safety 
+Select 	6798	20/01/2024 	We are currently reviewing all applications 	20/01/2024 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+Consultant: HR Business Partnering 
+Select 	7476	15/11/2023 	We are currently reviewing all applications 	15/11/2023 	We will advise on the outcome of the process as soon as it is finalised. 	Region(1) 	Location(1) 
+  
+Skip to Main Content 
+•	1 of 5 itemsHome
+•	2 of 5 itemsJob Search
+•	3 of 5 items selectedJob Management
+•	4 of 5 itemsPassword Management
+•	5 of 5 itemsMy Profile
+Welcome,Tshingombe Tshitadi 
+Sign Out
+Language
+English UK ‎(English UK)‎Collapsed. To expand press enterExpanded. To collapse press enter
+•	1 of 4 itemsJobs Applied
+•	2 of 4 items selectedSaved Searches/Alerts
+•	3 of 4 itemsSaved Jobs
+•	4 of 4 itemsSaved Applications
+Career Opportunities: Saved Searches/Alerts
+  
+Set up Job Alerts to receive automated emails listing current job openings. Job Alerts expire six months after they are created or updated. You can create up to fifteen Job Alerts. 
+Saved Searches/Alerts table, to focus press T in JAWS virtual PC cursor mode on. Use Control + Alt + arrow keys to navigate the table.
+Name	Date Modified	Date Expires	Alert Schedule	Actions
+Engineering electrical,policy managent system information recruitment, metering 
+03/11/2023	01/05/2024	Daily	Select
+
+Engineering electrical, science engineering transport 
+03/11/2023	01/05/2024	Daily	Select
+
+Engineering electrical Education technologie trade
+03/11/2023	01/05/2024	Daily	Select
+
+Engineering electrical citypower Eskom,chain supplies, financial megawatts 
+03/11/2023	01/05/2024	Daily	Select
+
+Engineering /manufacturing bank note processor 
+03/11/2023	01/05/2024	Daily	Select
+
+Engineering,police Assessment Portofilio 
+03/11/2023	01/05/2024	Daily	Select
+
+Engineering electrical 
+03/11/2023	01/05/2024	Daily	Select
+
+
+  
+
+
+
+
+
+
+
+ 
+Welcome to mySchneider
+Admin Console
+mySchneider
+User requests
+Products
+Looking for a product? View full product catalog 
+Mass image download 
+Product Configurators
+Selecting the right configurators has never been so easy and fast. Save time during design and implementation of your project.
+ 
+Project Builder
+•	Recent projects
+•	Project-12 Untitled
+•	View Project Detail
+•	Project-11 Untitled
+•	View Project Detail
+•	Project-10 Untitled
+•	View Project Detail
+•	
+Product configurators
+ 
+Use our product configurators 
+Orders
+Request account access to start ordering!
+Enjoy managing your ordering process more easily and efficiently than ever before
+Fast check of products Price & Availability real-time information.
+Place an order in just a few clicks.
+E2E order history with Schneider Electric including returns and special prices agreements.
+Request access
+Which account would you like to access as Home account?
+Please enter the Account number assigned by Schneider Electric to your Company, if you are unsure of this please ask your Company administrator.
+ 
+Quotes
+Request account access to start Quotation Self-Service!
+Enjoy managing your Quoting process more easily and efficiently than ever before!
+Select a list of products, get a standard price or initiate a request for a special price, convert your quotes into orders and generate a proposal document.
+Access your quotes history with Schneider Electric.
+Which account would you like to access?
+ 
+Content
+Training
+Continue Learning
+ 
+Electrical Arc Flash Awareness
+Online Class
+View course
+22 In Progress
+3 Registered
+Training Offers
+Completed
+23
+Programs
+Join the Schneider Electric partner program
+Expand your knowledge on our products and solutions
+Stay up to date on industry trends
+Develop your skills through self-paced online courses and webinars
+"Our handpicked Programs will help you to drive your business and grow your expertise. We will display more programs as they are added"
+Communities
+ 
+Explore Communities
+Machine Automation Forum > 
+Industry Events & Webinars > 
+Industry Automation Control Blog > 
+Community Home
+•	
+•	
+•	
+•	
+•	
+•	
+•	mySchneider Terms of Use 
+•	
+•	Legal information 
+•	Privacy Policy 
+•	Cookie Notice 
+•	Change your cookie settings 
+©2024, Schneider Electric
+
+
+
+
+
+
+
+ 
+Overview All Projects 
+Project Builder
+Active Projects Archived Projects Shared with me
+Project-12 Untitled
+Last Modified:  17/1/2024
+open
+undefined frame work implentation system logic control 
+Date:  15/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+R 119 344,00
+Project-11 Untitled
+Last Modified:  15/1/2024
+open
+undefined
+Date:  15/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+R 15 985,00
+Project-10 Untitled
+Last Modified:  15/1/2024
+open
+undefined
+Date:  15/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+R 15 985,00
+Project-9 Untitled
+Last Modified:  14/1/2024
+open
+Date:  14/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+Project-6 Untitled
+Last Modified:  14/1/2024
+open
+Engineering electrical analyse design investigation .implentation system assessment police .security industrial. 
+Date:  14/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+Project-7 Untitled
+Last Modified:  14/1/2024
+open
+Date:  14/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+Project-5 Untitled
+Last Modified:  12/1/2024
+open
+undefined
+Date:  12/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+Project-4 Untitled
+Last Modified:  12/1/2024
+open
+Date:  12/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+Project-3 Untitled
+Last Modified:  12/1/2024
+open
+undefined
+Date:  12/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+R 23 325,59
+Project-2 Untitled
+Last Modified:  12/1/2024
+open
+undefined
+Date:  12/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+R 12 370,38
+Project-1 Untitled
+Last Modified:  11/1/2024
+open
+Date:  11/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+•	
+•	
+•	
+•	
+•	
+•	
+•	mySchneider Terms of Use 
+•	
+•	Legal information 
+•	Privacy Policy 
+•	Cookie Notice 
+•	Change your cookie settings 
+©2024, Schneider Electric
+Modicon PLC Configurator
+1.	
+•  HomeDone
+•  •  PLC selectionDone
+3.	•  
+Graphical editorDone
+4.	Power supplyIn Progress
+5.	AccessorizeNot Done
+6.	Finalize and shareNot Done
+Configuration
+My configuration
+Range
+Modicon M262
+TM262M25MESS8T
+Power supply
+24 Vdc
+Field bus protocols
+Modbus SL; Modbus TCP; EtherNet/IP; Sercos
+1
+Your requirements
+2
+Estimate your output consumption
+3
+Group your segments
+Define your power supply requirements
+Network voltage
+140...340 Vdc
+100...240 Vac
+380…500 Vac
+Network number of phases
+Single phase
+Phase to phase
+Three phase
+Protection technology
+(optional)
+Automatic
+Automatic or manual
+Does your application require an high continuity of service
+(optional)
+Yes
+Add to my project
+Modicon PLC Configurator
+1.	
+•  HomeDone
+•  •  PLC selectionDone
+•  •  Graphical editorDone
+•  •  Power supplyDone
+•  •  AccessorizeSkipped
+6.	•  
+Finalize and shareDone
+Configuration
+My configuration
+Range
+Modicon M262
+TM262M25MESS8T
+Power supply
+24 Vdc
+Field bus protocols
+Modbus SL; Modbus TCP; EtherNet/IP; Sercos
+Bill of materials
+No	Reference	Description		Quantity
+		
+Controller + I/O		2
+1	TM262M25MESS8T	motion controller, Modicon M262, 3ns per instruction, 8 axes, Ethernet, Sercos		1
+2	ABL8WPS24200	Regulated switch power supply, modicon power supply, 3 phases, 380 to 500V AC, 24V, 20A		1
+Your configuration has been saved!
+Add to my project
+View more options
+Skip to main content 
+ 
+ 
+Show Navigation Menu 
+ 
+•	
+o	
+•	
+•	
+•	
+•	
+•	
+•	
+Main content below 
+
+Completed Training: Tshingombe fiston
+Title 	Type 	Completion Date 	Score 	Status 
+Schneider Electric’s Vision Edge 2022: Powering Digital Transformation 	Video 	3/5/2024 		Completed 
+Secure Power_Virtual Certification_on demand 2021_sesion 4 	Video 	1/24/2024 		Completed 
+Cooling Virtual Certificaion_on demand 2021_sesion 2 	Video 	1/24/2024 		Completed 
+Technical Expert Assessment Video 	External Content 	1/23/2024 		Completed 
+DirQ_GL36R00 Technical Expert Assessment 	External Content 	1/23/2024 		Completed 
+Technical Expert Assessment Workflow 	External Content 	1/23/2024 		Completed 
+Technical Expert Assessment GuideBook 	External Content 	1/23/2024 		Completed 
+Schneider Electric Information Technology guide 	Material 	1/23/2024 		Completed 
+Heating, Ventilation and Air Conditioning (HVAC): Discover the Machines 	Online Class 	1/23/2024 	0 	Completed 
+Room Ventilation And Airborne Disease Transmission In A Healthcare Setting 	Online Class 	1/22/2024 		Completed 
+Ecostruxure Power: Energy Modeling and Verification (SSOW) 	Video 	1/22/2024 		Completed 
+Vérification de la facture /EcoStruxure Power: Utility Bill Verification (French) 	Online Class 	1/22/2024 		Completed 
+Discover Telemecanique Sensors 	Curriculum 	1/22/2024 		Completed 
+EcoStruxure Power Operation: Ch7 - Add Mechanical Graphincs and Controls 	Video 	1/21/2024 		Completed 
+ASCO: Fundamentals in Technical Document Review 	Online Class 	1/18/2024 		Completed 
+EBO 2023: Introduction to Docker 	Online Class 	1/18/2024 		Completed 
+EcoStruxure Security Expert: Biometric Reader Integration 4.3 	Video 	1/15/2024 		Completed 
+Discover Harmony XB5S Biometric Switches 	Video 	1/15/2024 		Completed 
+EcoStruxure Building: LonWorks Introduction Part 3 	Online Class 	1/15/2024 		Completed 
+Innovation Talk: Why Alarm Management is the tip of the iceberg- and the best indicator of a poorly performing control system 	Video 	1/15/2024 		Completed 
+PowerTalks: Equipment Performance 	Video 	1/15/2024 		Completed 
+EcoStruxure Building: Script Programming (Self-Study) 	Material 	1/15/2024 		Completed 
+Drives: Fundamentals of Kinematics: Calculation Centrifuge 	Video 	1/15/2024 		Completed 
+Gestion de la Capacité /EcoStruxure Power: Capacity Management (French) 	Online Class 	1/15/2024 		Completed 
+ASCO: Low Voltage Construction Fundamentals 	Online Class 	1/15/2024 		Completed 
+Migrate from Legacy Graphics 	Video 	1/15/2024 		Completed 
+Physical Infrastructure Management Basics 	Online Class 	1/14/2024 		Completed 
+Fundamentals of Physical Security 	Online Class 	1/14/2024 		Completed 
+Schneider Electric Approved EV Installers : IT Architecture 	Material 	1/13/2024 		Completed 
+Advanced Lighting Control with KNX and DALI 	Online Class 	1/13/2024 	0 	Completed 
+ASCO: Application of Circuit Breakers in Power Control Systems 	Online Class 	1/13/2024 		Completed 
+Security Expert Transition Guide 	Material 	1/13/2024 		Completed 
+Discover Wiring Devices: Technical Structure and Applications 	Online Class 	1/12/2024 	0 	Completed 
+Internet: 50+ Years of Innovations and Inventions that Made It 	Curriculum 	1/12/2024 		Completed 
+Computer History in a Photo Album 	Curriculum 	1/12/2024 		Completed 
+Digital Economy: Movers and Shakers 	Curriculum 	1/12/2024 		Completed 
+Your Computer’s Secrets 	Curriculum 	1/12/2024 		Completed 
+Trending Digital Technologies 	Curriculum 	1/12/2024 		Completed 
+Back Print
+ 
+Version: 17.3.0.171 
+Powered by Cornerstone OnDemand, Inc. ©2000-2017 
+All Rights Reserved. Terms - Privacy - Cookies - Feedback - Set Your Preferences
+Go to mySchneider
+Translate to:
+Please select
+Help 
+•	 
+ 
+•	Community Home
+•	Forums 
+•	Knowledge Center 
+•	Events & Webinars 
+•	Ideas 
+•	Blogs 
+•	 
+Follow along for an enriching discussion with our CEO, Peter Herweck, and industry leaders for a captivating Global Keynote at #InnovationSummit Paris 2024. Watch recording and join the #ImpactMaker movement!️ 
+Digital Buildings Global Technical Training Forum
+Keep up to date on the latest training announcements from the Global Technical Training Team. Here you'll find new training content for all offers and upcoming training events details.
+ 
+•	Schneider Electric Community 
+•	EcoStruxure Building 
+•	Digital Building Global Training 
+•	Digital Buildings Global Technical Training Forum 
+•	engineering education technologie 
+Your post will appear as soon as it is approved. 
+•	Click to view the status of your post.
+Related Topics
+•	Automated Engineering Tool (AET) support 
+•	Digitale technologie gaat de transitie naar elektrisch rijden mogelijk maken 
+•	EBO 3.2.x SNMP Engine ID 
+•	Engineers' Choice Award 2022 
+•	Offline Engineering with Project Configuration Server (PCS) 
+Invite a Colleague
+Found this content useful? Share it with a Colleague!
+ 
+Back to Digital Buildings Global Technical Training Forum
+ 
+Fiston 
+Cadet 
+Posted: 13 seconds ago 
+0
+0
+engineering education technologie 
+eng
+Project-12 Untitled
+Last Modified:  17/1/2024
+open
+undefined frame work implentation system logic control
+Date:  15/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+R 119 344,00
+Project-11 Untitled
+Last Modified:  15/1/2024
+open
+undefined
+Date:  15/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+R 15 985,00
+Project-10 Untitled
+Last Modified:  15/1/2024
+open
+undefined
+Date:  15/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+R 15 985,00
+Project-9 Untitled
+Last Modified:  14/1/2024
+open
+Date:  14/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+Project-6 Untitled
+Last Modified:  14/1/2024
+open
+Engineering electrical analyse design investigation .implentation system assessment police .security industrial.
+Date:  14/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+Project-7 Untitled
+Last Modified:  14/1/2024
+open
+Date:  14/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+Project-5 Untitled
+Last Modified:  12/1/2024
+open
+undefined
+Date:  12/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+Project-4 Untitled
+Last Modified:  12/1/2024
+open
+Date:  12/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+Project-3 Untitled
+Last Modified:  12/1/2024
+open
+undefined
+Date:  12/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+R 23 325,59
+Project-2 Untitled
+Last Modified:  12/1/2024
+open
+undefined
+Date:  12/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+R 12 370,38
+Project-1 Untitled
+Last Modified:  11/1/2024
+open
+Date:  11/1/2024
+End User Company:  Tshingombe engineering
+Project Owner:  Tshingombe fiston
+•	 
+•	 
+•	 
+•	 
+•	 
+•	 
+•	mySchneider Terms of Use
+•	 
+•	Legal information
+•	Privacy Policy
+•	Cookie Notice
+•	Change your cookie settings
+©2024, Schneider Electric
+Top of Form
+Bottom of Form
+Modicon PLC Configurator
+1.	 
+•	  HomeDone
+•	  ·  PLC selectionDone
+1.	· 
+Graphical editorDone
+1.	Power supplyIn Progress
+2.	AccessorizeNot Done
+3.	Finalize and shareNot Done
+Configuration
+My configuration
+Range
+Modicon M262
+TM262M25MESS8T
+Power supply
+24 Vdc
+Field bus protocols
+Modbus SL; Modbus TCP; EtherNet/IP; Sercos
+1
+Your requirements
+2
+Estimate your output consumption
+3
+Group your segments
+Define your power supply requirements
+Network voltage
+140...340 Vdc
+100...240 Vac
+380…500 Vac
+Network number of phases
+Single phase
+Phase to phase
+Three phase
+Protection technology
+(optional)
+Automatic
+Automatic or manual
+Does your application require an high continuity of service
+(optional)
+Yes
+Add to my project
+Modicon PLC Configurator
+1.	 
+•	  HomeDone
+•	  ·  PLC selectionDone
+•	  ·  Graphical editorDone
+•	  ·  Power supplyDone
+•	  ·  AccessorizeSkipped
+1.	· 
+Finalize and shareDone
+Configuration
+My configuration
+Range
+Modicon M262
+TM262M25MESS8T
+Power supply
+24 Vdc
+Field bus protocols
+Modbus SL; Modbus TCP; EtherNet/IP; Sercos
+Bill of materials
+No	Reference	Description	 	Quantity
+ 	 	 
+ 
+Controller + I/O	 	2
+1	TM262M25MESS8T	motion controller, Modicon M262, 3ns per instruction, 8 axes, Ethernet, Sercos	 	1
+2	ABL8WPS24200	Regulated switch power supply, modicon power supply, 3 phases, 380 to 500V AC, 24V, 20A	 	1
+Your configuration has been saved!
+Add to my project
+View more options
+Skip to main content 
+ 
+ 
+Show Navigation Menu 
+ 
+ 
+•	 
+o	 
+•	 
+•	 
+•	 
+•	 
+•	 
+•	 
+ 
+Main content below
+ 
+Completed Training: Tshingombe fiston
+Title	Type	Completion Date	Score	Status
+Schneider Electric’s Vision Edge 2022: Powering Digital Transformation	Video	3/5/2024	 	Completed
+Secure Power_Virtual Certification_on demand 2021_sesion 4	Video	1/24/2024	 	Completed
+Cooling Virtual Certificaion_on demand 2021_sesion 2	Video	1/24/2024	 	Completed
+Technical Expert Assessment Video	External Content	1/23/2024	 	Completed
+DirQ_GL36R00 Technical Expert Assessment	External Content	1/23/2024	 	Completed
+Technical Expert Assessment Workflow 	External Content	1/23/2024	 	Completed
+Technical Expert Assessment GuideBook	External Content	1/23/2024	 	Completed
+Schneider Electric Information Technology guide	Material	1/23/2024	 	Completed
+Heating, Ventilation and Air Conditioning (HVAC): Discover the Machines	Online Class	1/23/2024	0	Completed
+Room Ventilation And Airborne Disease Transmission In A Healthcare Setting	Online Class	1/22/2024	 	Completed
+Ecostruxure Power: Energy Modeling and Verification (SSOW)	Video	1/22/2024	 	Completed
+Vérification de la facture /EcoStruxure Power: Utility Bill Verification (French)	Online Class	1/22/2024	 	Completed
+Discover Telemecanique Sensors	Curriculum	1/22/2024	 	Completed
+EcoStruxure Power Operation: Ch7 - Add Mechanical Graphincs and Controls	Video	1/21/2024	 	Completed
+ASCO: Fundamentals in Technical Document Review	Online Class	1/18/2024	 	Completed
+EBO 2023: Introduction to Docker	Online Class	1/18/2024	 	Completed
+EcoStruxure Security Expert: Biometric Reader Integration 4.3	Video	1/15/2024	 	Completed
+Discover Harmony XB5S Biometric Switches	Video	1/15/2024	 	Completed
+EcoStruxure Building: LonWorks Introduction Part 3	Online Class	1/15/2024	 	Completed
+Innovation Talk: Why Alarm Management is the tip of the iceberg- and the best indicator of a poorly performing control system	Video	1/15/2024	 	Completed
+PowerTalks: Equipment Performance	Video	1/15/2024	 	Completed
+EcoStruxure Building: Script Programming (Self-Study)	Material	1/15/2024	 	Completed
+Drives: Fundamentals of Kinematics: Calculation Centrifuge	Video	1/15/2024	 	Completed
+Gestion de la Capacité /EcoStruxure Power: Capacity Management (French)	Online Class	1/15/2024	 	Completed
+ASCO: Low Voltage Construction Fundamentals	Online Class	1/15/2024	 	Completed
+Migrate from Legacy Graphics	Video	1/15/2024	 	Completed
+Physical Infrastructure Management Basics	Online Class	1/14/2024	 	Completed
+Fundamentals of Physical Security	Online Class	1/14/2024	 	Completed
+Schneider Electric Approved EV Installers : IT Architecture	Material	1/13/2024	 	Completed
+Advanced Lighting Control with KNX and DALI	Online Class	1/13/2024	0	Completed
+ASCO: Application of Circuit Breakers in Power Control Systems	Online Class	1/13/2024	 	Completed
+Security Expert Transition Guide	Material	1/13/2024	 	Completed
+Discover Wiring Devices: Technical Structure and Applications	Online Class	1/12/2024	0	Completed
+Internet: 50+ Years of Innovations and Inventions that Made It	Curriculum	1/12/2024	 	Completed
+Computer History in a Photo Album	Curriculum	1/12/2024	 	Completed
+Digital Economy: Movers and Shakers	Curriculum	1/12/2024	 	Completed
+Your Computer’s Secrets	Curriculum	1/12/2024	 	Completed
+ineering technologie
+tshingombe 
+Attachments
+assessemnt tshingombe.docx 
+tshingombe assessment electrical job.docx 
+•	Labels:
+•	Security Expert Technical Training 
+•	SpaceLogic Technical Training 
+Add tags 
+Replies 0 
+Sort: 
+ 
+ 
+To The Top!
+Forums 
+•	APC UPS Data Center Backup Solutions
+•	EcoStruxure IT
+•	EcoStruxure Geo SCADA Expert
+•	Metering & Power Quality
+•	Schneider Electric Wiser
+Knowledge Center
+Events & webinars
+Ideas
+Blogs
+Get Started
+•	Ask the Community
+•	Community Guidelines
+•	Community User Guide
+•	How-To & Best Practice
+•	Experts Leaderboard
+•	Contact Support
+ 
+•	
+•	
+•	
+•	
+•	
+Terms & Conditions Privacy Notice Change your cookie settings © 2024 Schneider Electric, Inc 
+
+
 
              
 
